@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data-driven projects and initiatives that drive business growth and innovation.
 - 📫 You can reach me at bvelucha@asu.edu or connect with me on LinkedIn at www.linkedin.com/in/balajirajveluchamy.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I enjoy exploring new hiking trails and experimenting with new recipes in the kitchen.
+- ⚡ Fun fact: I enjoy exploring new languages like Spanish & Sign Languages and experimenting with new recipes in the kitchen.
 
 <!---
 BalajiRajVeluchamy0411/BalajiRajVeluchamy0411 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
